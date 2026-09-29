@@ -1,6 +1,6 @@
 # Swastika Infra IPO: Price Band, GMP, Allotment Status and Listing Date
 
-The **Swastika Infra IPO** opened from **23 September to 25 September 2026**. The IPO had a price band of **₹175 to ₹185 per share** and a lot size of **81 shares**.
+The **[Swastika Infra IPO](https://www.finowings.com/IPO/swastika-infra-ipo)** opened from **23 September to 25 September 2026**. The IPO had a price band of **₹175 to ₹185 per share** and a lot size of **81 shares**.
 
 This guide covers the Swastika Infra IPO price band, GMP, subscription status, allotment status, allotment date, listing date and other important IPO details.
 
